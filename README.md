@@ -44,4 +44,4 @@ Any changes will be posted on this page with an updated “Effective date”.
 ## 📧 Contact Us
 
 If you have any questions or concerns about this Privacy Policy, please contact us:  
-✉️ [support@begenc.com](mailto:support@begenc.com)
+✉️ [begahaciyew@gmail.com](begahaciyew@gmail.com)
